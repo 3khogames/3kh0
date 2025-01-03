@@ -6,7 +6,7 @@ Unblocked Games Network
  
  <a href="https://76ezgames.com" title="Unblocked Games 76" rel="nofollow">76EZGAMES.com</a>  <br>
  
-  <a href="https://classroom6x.lol" title="Classroom6x.lol" rel="nofollow">Classroom6x.lol</a> <br>
+  <a href="https://clasroom15x.com" title="classroom 15x" rel="nofollow">Classroom 15x</a> <br>
 
 What Are Unblocked Games?
 <br>
