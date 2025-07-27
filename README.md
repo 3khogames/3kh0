@@ -2,11 +2,11 @@
 
 Unblocked Games Network
 
- <a href="https://66games.io" title="66GAMES.io" rel="nofollow">66GAMES.io</a>  <br>
+ <a href="https://6xclassroom.io" title="6XClassroom" rel="nofollow">6xClassroom.io</a>  <br>
  
- <a href="https://76ezgames.com" title="Unblocked Games 76" rel="nofollow">76EZGAMES.com</a>  <br>
+ <a href="https://unbannedgames.io" title="Unbanned Games" rel="nofollow">Unbanned Games</a>  <br>
  
-  <a href="https://clasroom15x.com" title="classroom 15x" rel="nofollow">Classroom 15x</a> <br>
+  <a href="https://clasroom60x.com" title="classroom 60x" rel="nofollow">Classroom 60x</a> <br>
 
 What Are Unblocked Games?
 <br>
