@@ -2,7 +2,7 @@
 
 Unblocked Games Network
 
- <a href="https://6xclassroom.io" title="6XClassroom" rel="nofollow">6xClassroom.io</a>  <br>
+ <a href="https://classroomgames6x.com" title="6XClassroom" rel="nofollow">6xClassroom.io</a>  <br>
  
  <a href="https://unbannedgames.io" title="Unbanned Games" rel="nofollow">Unbanned Games</a>  <br>
  
